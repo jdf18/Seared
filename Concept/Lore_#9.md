@@ -1,3 +1,4 @@
+#9
 # Main Story 
 
 Throughout their life, XXX worked in the Company's grasp, but one thing they did not have a grasp on was XXX's will. Or the time travel technology they tried to hide from the world.
